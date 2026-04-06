@@ -22,4 +22,7 @@ rp with me?
 venting or talking about serious topics? 
 *uh...sure, but I must warn you, I may not know how to interact or react most times. but I'll try to add as much comfort as I can possible (I can only listen, I can't give advice that well;v;)*
 
+wanting to call or make me your oomf? 
+*...uh... ok? just... we have to at least interact 3 times (or more) , and if you do say that I am I'll prob be shocked -*
+
 this is still a wip and unorganized af-
