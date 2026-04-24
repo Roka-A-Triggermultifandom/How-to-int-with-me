@@ -25,4 +25,13 @@ venting or talking about serious topics?
 wanting to call or make me your oomf? 
 *...uh... ok? just... we have to at least interact 3 times (or more) , and if you do say that I am I'll prob be shocked -*
 
+want to interact as a problematic person, dark/proshipper? 
+*No, just no.*
+
+want to ask for discord or whatsapp to call me instead of texting? 
+*absolutely!!, I love calling and yapping in voice calls, Discord prefered though!*
+
+want to interact with me even if my name says 'on streets' or 'walking' with the combination of 'w2i'? 
+*if you don't mind late responses, then sure!, but these mostly mean I'm walking irl and texting involves me having to stop and I don't really like stopping, but if you want to talk and have either discord or whatsapp, ask for that because if I'm on call I don't have to stop walking!(though might be a little out of breath cus talking and walking is a bit tiring), but idm!, and I'm able to still read and see what's happening, I just prefer to not text and walk*
+
 this is still a wip and unorganized af-
